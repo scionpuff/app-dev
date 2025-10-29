@@ -7,7 +7,7 @@ https://github.com/flickowoa
 
 APPLICATION DEVELOPMENT AND EMERGING TECHNOLOGIES
 
-I am making my activity about my favorite series!
+I am making my activity about my favorite series! 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣤⣤⣤⣤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⢠⣿⠋⠀⠀⠙⢿⣦⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
