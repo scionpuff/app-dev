@@ -7,5 +7,12 @@ https://github.com/flickowoa
 
 APPLICATION DEVELOPMENT AND EMERGING TECHNOLOGIES
 
+I am making my activity about my favorite series!
+
+|
+|
+|
+|
+V
 
 ![Violet Evergarden](https://wallpapers.com/images/high/violet-evergarden-ocean-view-hk0cebblvgaa2anw.webp)
